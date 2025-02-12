@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Ducko-TA or Thaakir
-- 👀 I’m interested in Gaming and Programming, aswell as photography and hiking
+- 👀 I’m interested in Gaming and Programming, aswell as photography and hiking. I also write poetry sometimes
 - 🌱 I’m currently learning Java and Python
 - 📫 How to reach me @itsreallyducko on instagram
 - 😄 Pronouns: him
